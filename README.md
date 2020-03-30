@@ -1,1 +1,1 @@
-# 1900018024
+hehe, ini hanya untuk keperluan tugas kuliah
